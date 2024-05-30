@@ -1,0 +1,1 @@
+# determined_kapitsa1
